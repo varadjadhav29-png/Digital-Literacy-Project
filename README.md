@@ -86,10 +86,9 @@ Wrote two professional emails:
 
 Request for assignment extension  
 Internship application email  
-Created:  
+Created:
+Social Media Do’s & Don’ts checklist  
 
-**Social Media Do’s & Don’ts checklist  
-**
 **Task 5: Cybercrime Awareness**  
 
 Created a case study on:  
